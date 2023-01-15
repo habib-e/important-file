@@ -1,1 +1,1 @@
-
+A self-motivated and passionate problem solver, participated in several programming onsite contests including ICPC Regional. Cooperating and helpful team participant, with the ability to think & work under pressure.
